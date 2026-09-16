@@ -117,7 +117,7 @@ Join the DV200 community and help us grow! Here's how:
    
 
 ## Contact Me 📬
-Have questions or feedback or do you find and mistake here? I love to hear from you! Reach out at [...💬](mailto:nidhinchandran470@gmail.com).
+Have questions or feedback or do you find any mistake here? I love to hear from you! Reach out at [...💬](mailto:pragnyayechhi@gmail.com).
 
 ---
 
